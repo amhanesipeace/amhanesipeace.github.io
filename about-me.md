@@ -1,5 +1,5 @@
 ## About Me
-Currently, I am a Senior at Morgan State University, located in Baltimore, Maryland. I am pursuing a Bachelor’s degree in Computer Science. My expected graduation date is in 2025.
+Hi my name is Peace Osiriamen (O Si Rhea Men) Amhanesi, I am from Edo State Nigeria.
+Currently, I am a Rising Junior at Edward Waters University, located in Jacksonville, Florida. I am pursuing a Bachelor’s degree in Computer and Information Science. My expected graduation date is in 2026.
 
-[Linkedin Profile](https://www.linkedin.com/in/michael-adeleke-4a1228217/)
-
+[Linkedin Profile]((https://www.linkedin.com/in/peace-amhanesi-a445ab232)/)
