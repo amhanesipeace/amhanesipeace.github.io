@@ -1,7 +1,6 @@
 ---
 layout: post
 title: Week 3
-date: 06/14/2024
 by: Peace Osiriamen Amhanesi
 ---
 Peace Osiriamen Amhanesi
