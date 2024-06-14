@@ -6,7 +6,6 @@ by: Peace Osiriamen Amhanesi
 ---
 Peace Osiriamen Amhanesi
  
-Be Productive this week!!!
 I'm Back!!! YAY!!!
 
 Week three started with my team learning, being productive, and collaborating, packed with various activities and accomplishments that have significantly contributed to our project's progress.
