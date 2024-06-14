@@ -13,4 +13,6 @@ One of the best parts was reconnecting with my amazing team members, our faculty
 Ms. Blessing guided us through the basics of Python, helping us understand key functions and their applications in our project. With her support, I managed to complete the Python tutorial in just five days. At first, I struggled with understanding some Python functions, but with continuous support and encouragement from Ms. Blessing, I overcame these challenges.
 In general, this week has been a foundational and enlightening experience, setting the stage for our project. I’m excited about the progress we’ve made and look forward to being more productive in the coming weeks.
 
+Have a blessed week
+
 [Back](./)
