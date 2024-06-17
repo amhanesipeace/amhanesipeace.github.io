@@ -5,7 +5,7 @@ by: Peace Osiriamen Amhanesi
 ---
 Peace Osiriamen Amhanesi
  
-I'm Back!!! YAY!!!
+I'm Back!!! YAY!!
 
 Week three started with my team learning, being productive, and collaborating, packed with various activities and accomplishments that have significantly contributed to our project's progress.
 We started the week with a fantastic session on academic writing led by Dr. Anita Pandey. Her insights on clear and concise writing were invaluable. She highlighted how using visuals effectively and citing credible sources can enhance the quality of our research. Her strategies for maintaining an analytical approach in our writing were beneficial, setting a solid foundation for our future work.
