@@ -1,7 +1,6 @@
 ---
 layout: post
 title: Week 1
-date: 
 by: Peace Osiriamen Amhanesi
 ---
 Peace Osiriamen Amhanesi
