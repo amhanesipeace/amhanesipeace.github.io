@@ -4,6 +4,7 @@ title: Week 2
 by: Peace Osiriamen Amhanesi
 ---
 Peace Osiriamen Amhanesi
+YAY!!!, I'm Back!!
  
 This week was the start of our project work and training sessions. It started with us attending the Researching to Write and Writing to Research, session where we learned the importance of clear, concise, and impactful writing in research. The sessions covered valuable strategies for organizing research content, using visuals, citing credible sources, and maintaining an analytical approach in our writing. I also completed the CITI Program training, earning certificates in Social and Behavioral Responsible Conduct of Research and Social & Behavioral Research - Basic/Refresher. This training was essential for understanding the research ethics and methodologies we’ll be using in our project.
 
