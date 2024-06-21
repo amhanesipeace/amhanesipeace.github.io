@@ -20,7 +20,7 @@ Friday was equally productive. We began the day by writing our journals for Week
 Overall, this week was filled with valuable learning experiences and productive activities. Despite the challenges, I’m excited about the progress we’ve made and look forward to applying these new skills and insights as we continue with our research.
 
 
-Have a productive week
+Have a productive weekend!!!
 
 
 [Back](./)
