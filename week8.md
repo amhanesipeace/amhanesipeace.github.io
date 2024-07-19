@@ -1,4 +1,12 @@
-Yay! Another week wrapped up, and I thank God for this opportunity. It's week 8, and I'm getting used to how quickly the weeks are flying by as we get closer to the end of the program. Here's a brief rundown of my accomplishments and challenges for this week:
+---
+layout: post
+title: Week 8
+by: Peace Osiriamen Amhanesi
+---
+Peace Osiriamen Amhanesi
+I'm back
+
+ Yay! Another week wrapped up, and I thank God for this opportunity. It's week 8, and I'm getting used to how quickly the weeks are flying by as we get closer to the end of the program. Here's a brief rundown of my accomplishments and challenges for this week:
 
 I started the week by going into drafting the abstract, introduction, and methodology for our technical paper. It was a productive start, and by the end of the day, we had also started working on our pitch video and managed to complete it.
 
